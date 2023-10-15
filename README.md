@@ -11,6 +11,8 @@ https://leakgirls.com
 - [Purchase a key](#purchase-a-key)
 - [Free Trial](#free-trial)
 - [Supported sites](#supported-cam-sites)
+- [Contacts](#contacts)
+- [Other Products And Services](#other-products-and-services)
 
 ### Description
 
@@ -64,3 +66,16 @@ Leakgirls directly supports the following websites:
 *   eplay.com
 
 Additionally it can download videos from unsupported sites by selecting the 'other' option and adding the full link, but this isn't guaranteed to work.
+
+
+## Contacts
+- [info@leakgirls.com](mailto:info@leakgirls.com)
+- [Telegram: Icaro10100 - Click here](https://telegram.me/Icaro10100)
+
+
+## Other Products And Services
+- [LeakGirls - Automatic Recorder For Adult Cam Sites](https://leakgirls.com)
+- [Reddit Upvotes - Cheap And Reliable](https://smediabots.com/Posts/reddit-upvotes/)
+- [All In One IMAP Email Login Checker](https://smediabots.com/Posts/imap-aio-email-checker/)
+- [Omegle Messaging Bot - Simple & Effective](https://smediabots.com/Posts/omegle-message-bot/)
+- [RecStreams - Automatic Stream Recorder & Video Downloader For Any Site](https://recstreams.com/)
